@@ -1,2 +1,2 @@
 # Cybersecurity-pro-statement
-My Professional Cybersecurity Statement
+My strengths, values, and interest in cybersecurity will support the security goals of many organizations because of my attention to detail and my ability to adapt, learn and listen. Alongside my passion to help, I love to learn. Not only learn, but use what I’m learning to better ensure the totality of my skills. My most important mission is protecting the information of a business, or any person that may not know how to protect their own. I will follow all laws and guidelines to provide the best service possible. I am willing to learn any playbook that ensures the greatest results!
